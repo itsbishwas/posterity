@@ -1,3 +1,3 @@
-# posterity
+#De-Activate
 This is inactive site.
-sharmabishwash.com.np
+www.sharmabishwash.com.np
